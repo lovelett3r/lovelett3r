@@ -4,3 +4,4 @@
 hi im capo or markus. gihhub wip
 
 <img width="506" height="137" alt="caporegimegif" src="https://github.com/user-attachments/assets/048aa628-e6d9-4b29-961b-cc4f906b0bce" />
+| > I am a 2D and 3D artist. i talk/cudds with anyone who comes up to me. Whisp/ATA me if im with someone problematic. dni darkshippers, i will permhide. if i accidentally int with you, permhide me
