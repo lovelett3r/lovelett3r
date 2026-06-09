@@ -1,4 +1,4 @@
-<p align="center"> ![dreamwalkers](https://komarev.com/ghpvc/?username=lovel3tter)
+<p align="center"> ![](https://komarev.com/ghpvc/?username=lovelett3r)
 
 
 <p align="center"> <img width="2570" height="735" alt="caporegimes_banner aww" src="https://github.com/user-attachments/assets/abc02705-a0d9-4b13-86e1-f9a82578d54d" />
