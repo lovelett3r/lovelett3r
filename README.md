@@ -1,8 +1,12 @@
+<p align="center"> ![dreamwalkers](https://komarev.com/ghpvc/?username=lovel3tter)
 
-<img width="1130" height="440" alt="funnibanner" src="https://github.com/user-attachments/assets/6b430b7c-d81e-44b2-b55f-17ba590799f1" />
 
-hi im markus / capo. gihhub wip
+<p align="center"> <img width="2570" height="735" alt="caporegimes_banner aww" src="https://github.com/user-attachments/assets/abc02705-a0d9-4b13-86e1-f9a82578d54d" />
 
-<img width="506" height="137" alt="caporegimegif" src="https://github.com/user-attachments/assets/048aa628-e6d9-4b29-961b-cc4f906b0bce" />
+<p align="center"> hi im markus / capo. gihhub wip
 
-| > I am a 2D and 3D artist. Whisp/ATA me if im with someone problematic. dni darkshippers, i will permhide. if i accidentally int with you, permhide me
+<p align="center"> <img width="506" height="137" alt="caporegimegif" src="https://github.com/user-attachments/assets/048aa628-e6d9-4b29-961b-cc4f906b0bce" />
+
+<p align="center"> I am a 2D and 3D artist. 
+  <p align="center"> Whisp/ATA me if im with someone problematic. 
+    <p align="center"> dni darkshippers, i will permhide. if i accidentally int with you, permhide me
