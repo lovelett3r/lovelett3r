@@ -1,4 +1,4 @@
-<p align="center"> ![](https://komarev.com/ghpvc/?lovelett3r&style=for-the-badge)
+![Views](https://komarev.com/ghpvc/…bel=lovelett3r)
 
 <p align="center"> <img width="2570" height="735" alt="caporegimes_banner aww" src="https://github.com/user-attachments/assets/abc02705-a0d9-4b13-86e1-f9a82578d54d" />
 
