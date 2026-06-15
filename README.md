@@ -9,3 +9,4 @@
 <p align="center"> I am a 2D and 3D artist. 
   <p align="center"> Whisp/ATA me if im with someone problematic. 
     <p align="center"> dni darkshippers, i will permhide. if i accidentally int with you, permhide me
+<p align="center"> please dont make inappropriate jokes/actions directed at me in safe servers. if you do it enough times i will permhide even if greenname
