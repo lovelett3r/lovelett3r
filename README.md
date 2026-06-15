@@ -1,6 +1,6 @@
 <div align="center">
 
-![Views](https://komarev.com/ghpvc/?username=lovelett3r&color=red&style=flat&label=directory) </div><br>
+![Views](https://komarev.com/ghpvc/?username=lovelett3r&color=red&style=flat&label=debtors) </div><br>
 
 
 <p align="center"> <img width="2570" height="735" alt="caporegimes_banner aww" src="https://github.com/user-attachments/assets/abc02705-a0d9-4b13-86e1-f9a82578d54d" />
