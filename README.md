@@ -13,3 +13,7 @@
   <p align="center"> Whisp/ATA me if im with someone problematic. 
     <p align="center"> dni darkshippers, i will permhide. if i accidentally int with you, permhide me
 <p align="center"> please dont make inappropriate jokes/actions directed AT ME in safe servers. if you do it enough times in rapid frequency i will permhide even if greenname
+<img width="2048" height="246" alt="image" src="https://github.com/user-attachments/assets/ce9347ac-02dc-436b-92d7-b255f4e7d39c" />
+
+<p align="center"> <img width="261" height="34" alt="image" src="https://github.com/user-attachments/assets/3b752312-dc7c-4a45-b950-eb235a146eab" />
+<p align="center"> ponytown's caporegime in @title-town
